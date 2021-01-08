@@ -5,7 +5,7 @@ If there's anything i can do for you, send me a [email](mailto:marcoisdev@icloud
 
 ### Follow me on social media
 
-- [Medium](https://medium.com/marciosdev)
+- [Medium](https://medium.com/@marciosdev)
 - [Instagram](https://instagram.com/marciosdev)
 - [Twitter](https://twitter.com/marciosdev)
 - [Facebook](https://facebook.com/marciosdev)
